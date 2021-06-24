@@ -1,1 +1,1 @@
-https://i.imgur.com/YogFp6S.jpg
+![BetterDiscordThemes](https://i.imgur.com/YogFp6S.jpg)
